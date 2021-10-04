@@ -1,0 +1,2 @@
+sabedoria de odin
+zfsdhvhsuhvuosajnm
